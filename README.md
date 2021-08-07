@@ -1,27 +1,3 @@
 # hakunamamata
 
-sdfsdf
-sd
-fsd
-f
-sdf
-sdf
-sd
-fsd
-f
-sdf
-sdf
-sd
-fs
-df
-sdf
-sdf
-sd
-fs
-df
-sdf
-sdf
-sd
-f
-sdf
-sdf
+Ashwin , please takecare of this and learn quickly , please do it as soon as possible !!!
